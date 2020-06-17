@@ -1,1 +1,4 @@
-A website for my favourite character is currently being built here!
+# LARA CROFT
+## strong, intelligent yet fierce beauty
+### An inspiring female character
+
