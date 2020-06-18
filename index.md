@@ -12,3 +12,5 @@ Born to an aristocratic family, Lara is generally disinterested in upper class s
 Sources: fandom.com
 
 > "I make my own luck."
+
+<img src="https://i.pinimg.com/236x/e8/d1/f5/e8d1f5a7cb3ec8773a52b221496d0907.jpg"/>
